@@ -1,1 +1,2 @@
 # my-first-repo
+My name is Abdullah Khan. I am from Pakistan, I currently live in Brooklyn NY. Some of my hobbies include going to the gym, gaming, riding my bike and driving to catch the sunset because it is peaceful. 
